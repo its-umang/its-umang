@@ -1,4 +1,4 @@
-### Hi there I'm Umang. 👋
+### Hi there its-umang. 👋
 techumang98@gmail.com
 
 <!--
